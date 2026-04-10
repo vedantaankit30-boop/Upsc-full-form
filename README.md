@@ -1,5 +1,5 @@
 # Upsc-full-form
-UPSC is one of the most important terms for students preparing for government jobs in India. If you are starting your preparation journey, understanding the [UPSC full form](https://vedantaiasacademy.com/) is the first step.
+UPSC is one of the most important terms for students preparing for government jobs in India. If you are starting your preparation journey, understanding the [UPSC full form].(https://vedantaiasacademy.com/) is the first step.
 
 What is the Full Form of UPSC?
 
