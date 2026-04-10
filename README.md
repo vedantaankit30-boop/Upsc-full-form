@@ -33,6 +33,6 @@ Meet the age criteria (usually 21 to 32 years for general category)
 Fulfill other eligibility conditions depending on the exam
 Conclusion
 
-UPSC full form (https://vedantaiasacademy.com/), Union Public Service Commission, represents one of the highest levels of competitive exams in India. It opens the door to prestigious government careers and offers a respected position in society.
+[UPSC full form].(https://vedantaiasacademy.com/), Union Public Service Commission, represents one of the highest levels of competitive exams in India. It opens the door to prestigious government careers and offers a respected position in society.
 
 If you are planning for UPSC, start with understanding its structure and gradually build your preparation strategy.
